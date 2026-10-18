@@ -1,7 +1,7 @@
 
  <div align=center
 
-  fr█i██c█ke shippers HEAVY dni
+  fr█i█c█ke shippers HEAVY dni
 
   ![Image Alt](https://github.com/cupcakeboii/cupcakeboii/blob/main/descarga%20(4).png?raw=true)
 
